@@ -1,4 +1,4 @@
-Công dụng của một hệ thống làm mờ tốt
+Công dụng của một hệ thống làm mát
 
 Không phải ngẫu nhiên mà nhiều người lựa chọn hệ thống phun sương giá rẻ. Hiện nay, hệ thống phun sương mini được các chuyên gia và khách hàng đánh giá cao về công dụng “đa năng”:
 
